@@ -2,5 +2,5 @@
  
 الموقع الشخصي:
 https://abbassa.wordpress.com
-التواصل:
-https://www.facebook.com/abbassa3
+
+
